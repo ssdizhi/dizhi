@@ -11,29 +11,29 @@
 
 <span style="font-size:20px">色优酷</span><br />
 <br />
-<span style="font-size:20px"><a href="https://gcspw7.xyz" target="_blank">gcspw7.xyz</a></span><br />
-<span style="font-size:20px"><a href="https://gcspw6.xyz" target="_blank">gcspw6.xyz</a></span><br />
-<span style="font-size:20px"><a href="https://gcspw5.xyz" target="_blank">gcspw5.xyz</a></span><br />
-<span style="font-size:20px"><a href="https://gcspw4.xyz" target="_blank">gcspw4.xyz</a></span><br />
-<span style="font-size:20px"><a href="https://gcspw3.xyz" target="_blank">gcspw3.xyz</a></span><br />
+<span style="font-size:20px"><a href="https://youku.syk7.fun/youku/" target="_blank">youku.syk7.fun</a></span><br />
+<span style="font-size:20px"><a href="https://youku.syk6.fun/youku/" target="_blank">youku.syk6.fun</a></span><br />
+<span style="font-size:20px"><a href="https://youku.syk5.fun/youku/" target="_blank">youku.syk5.fun</a></span><br />
+<span style="font-size:20px"><a href="https://youku.syk4.fun/youku/" target="_blank">youku.syk4.fun</a></span><br />
+<span style="font-size:20px"><a href="https://youku.syk3.fun/youku/" target="_blank">youku.syk3.fun</a></span><br />
 <br />
 
 <span style="font-size:20px">无码抖音</span><br />
 <br />
-<span style="font-size:20px"><a href="https://gcspw7.xyz" target="_blank">gcspw7.xyz</a></span><br />
-<span style="font-size:20px"><a href="https://gcspw6.xyz" target="_blank">gcspw6.xyz</a></span><br />
-<span style="font-size:20px"><a href="https://gcspw5.xyz" target="_blank">gcspw5.xyz</a></span><br />
-<span style="font-size:20px"><a href="https://gcspw4.xyz" target="_blank">gcspw4.xyz</a></span><br />
-<span style="font-size:20px"><a href="https://gcspw3.xyz" target="_blank">gcspw3.xyz</a></span><br />
+<span style="font-size:20px"><a href="https://douyin.wmdy8.fun/douyin/" target="_blank">douyin.wmdy8.fun</a></span><br />
+<span style="font-size:20px"><a href="https://douyin.wmdy7.fun/douyin/" target="_blank">douyin.wmdy7.fun</a></span><br />
+<span style="font-size:20px"><a href="https://douyin.wmdy6.fun/douyin/" target="_blank">douyin.wmdy6.fun</a></span><br />
+<span style="font-size:20px"><a href="https://douyin.wmdy5.fun/douyin/" target="_blank">douyin.wmdy5.fun</a></span><br />
+<span style="font-size:20px"><a href="https://douyin.wmdy4.fun/douyin/" target="_blank">douyin.wmdy4.fun</a></span><br />
 <br />
 
 <span style="font-size:20px">姐姐B</span><br />
 <br />
-<span style="font-size:20px"><a href="https://gcspw7.xyz" target="_blank">gcspw7.xyz</a></span><br />
-<span style="font-size:20px"><a href="https://gcspw6.xyz" target="_blank">gcspw6.xyz</a></span><br />
-<span style="font-size:20px"><a href="https://gcspw5.xyz" target="_blank">gcspw5.xyz</a></span><br />
-<span style="font-size:20px"><a href="https://gcspw4.xyz" target="_blank">gcspw4.xyz</a></span><br />
-<span style="font-size:20px"><a href="https://gcspw3.xyz" target="_blank">gcspw3.xyz</a></span><br />
+<span style="font-size:20px"><a href="https://jiejie.jiejieb7.fun/jiejie/" target="_blank">jiejie.jiejieb7.fun</a></span><br />
+<span style="font-size:20px"><a href="https://jiejie.jiejieb6.fun/jiejie/" target="_blank">jiejie.jiejieb6.fun</a></span><br />
+<span style="font-size:20px"><a href="https://jiejie.jiejieb5.fun/jiejie/" target="_blank">jiejie.jiejieb5.fun</a></span><br />
+<span style="font-size:20px"><a href="https://jiejie.jiejieb4.fun/jiejie/" target="_blank">jiejie.jiejieb4.fun</a></span><br />
+<span style="font-size:20px"><a href="https://jiejie.jiejieb3.fun/jiejie/" target="_blank">jiejie.jiejieb3.fun</a></span><br />
 <br />
 
 <span style="font-size:20px">请将此页加入收藏夹！</span>
